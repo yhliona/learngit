@@ -9,3 +9,7 @@ I will curse you forever
 I really miss you
 有道翻译
 miss miss miss
+I miss you 俩意思
+一个是我想你
+一个是我丢了你~~~ 
+我特么全占了 我靠
