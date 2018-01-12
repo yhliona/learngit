@@ -14,3 +14,4 @@ I miss you 俩意思
 一个是我丢了你~~~ 
 我特么全占了 我靠
 Creating a new branch is quick.
+Creating a new branch is quick AND simple.
