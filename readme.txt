@@ -11,6 +11,7 @@ I really miss you
 miss miss miss
 I miss you 俩意思
 一个是我想你
-一个是我丢了你~~~ 
+一个是我丢了你~~~
 我特么全占了 我靠
-Creating a new branch is quick.
+Creating a new brnch is quick.
+Creating a new branch is quick & simple.
